@@ -1,1 +1,1 @@
-# crash
+# CRASH THE BROWSER CRASHER
